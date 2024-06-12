@@ -1,1 +1,0 @@
-# ecopamoja1
